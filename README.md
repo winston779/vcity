@@ -1,6 +1,6 @@
 # 万城网络官网地址
 
-最新地址：[shuttle.vcity-in.com](https://portal.vc-on.com/#/register?code=ZAMwsJ7g)
+最新地址：[vcity-co.com](https://portal.vcity-co.com/#/register?code=ZAMwsJ7g)
 
 ## 万城网络介绍
 
