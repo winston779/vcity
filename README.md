@@ -1,6 +1,6 @@
 # 万城网络官网地址
 
-最新地址：[vcity-co.com](https://portail.site-vc.com/#/register?code=ZAMwsJ7g)
+最新地址：[vcsite1.com](https://centre.vcsite1.com/#/register?code=ZAMwsJ7g)
 
 ## 万城网络介绍
 
